@@ -1,1 +1,1 @@
-# The-Meme-Archive
+# The Meme Archive
